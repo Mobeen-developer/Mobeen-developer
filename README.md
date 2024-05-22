@@ -2,7 +2,7 @@
 - 👀 I’m interested in world 
 - 🌱 I’m currently learning Python 
 - 💞️ I’m looking to collaborate on ...
-- 📫 You can reach me through rock.of.mob@gmail.com 
+- 📫 You can reach me through mobeenashraf0011@gmail.com
 - 😄 Pronouns: Mob
 - ⚡ Fun fact: Creativity 
 
